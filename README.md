@@ -1,0 +1,1 @@
+# camera_sticker_folder
